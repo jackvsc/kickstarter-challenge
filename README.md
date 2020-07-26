@@ -34,7 +34,7 @@ Louise's current campaign for *Fever* came close to its funding goal in a short 
 
 ## Results
 
-- Theater campaigns almost always end with success more often than failure. Theater campaigns are most successful when commenced in May, and least so when commenced in December.
+- Theater campaigns almost always end with success rather than failure. Theater campaigns are most successful when commenced in May, and least so when commenced in December.
 
 - Theater campaigns are most successful when the campaign goal is lower than $5,000.
 
